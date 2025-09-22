@@ -1,7 +1,7 @@
 # About the songs
 
 ## Dance in Eb (The Big Ben dance)
-This song was one of my first. Written in Spring 2025, this is also when I discovered I have an affinity for Eb.<br>
+This is the first piano song I wrote. Written in Spring 2025, this is also when I discovered I have an affinity for Eb.<br>
 The left hand descending sounds a lot like Big Ben's famous chimes. It has also been likened to the Rosie and Jim theme song.<br>
 
 ## Waltz in Cm (The Mystery Waltz)
