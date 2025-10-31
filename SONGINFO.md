@@ -7,3 +7,6 @@ The left hand descending sounds a lot like Big Ben's famous chimes. It has also 
 ## Waltz in Cm (The Mystery Waltz)
 This song was written for a DnD campaign in Autumn 2025.<br>
 To me, it turned into a bit of what sounds like a children's murder mystery show theme song.<br>
+
+## Lullaby in B (James's song)
+This song was written in Autumn 2025 for my nephew's first birthday. 
